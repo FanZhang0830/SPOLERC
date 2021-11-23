@@ -8,10 +8,10 @@
 
 5. For users around the world, you can download SPOLERC by clicking the following link:
 
-https://drive.google.com/file/d/1juFZDGPfrGuIyVYKBifZp14GTg_ClzrW/view?usp=sharing
+https://drive.google.com/file/d/1I49kpwxlrPEARz_2BK1Fuv_Mgeu5tnN3/view?usp=sharing
 
 6. For our users in China, you can use Baidu service instead:
-链接：https://pan.baidu.com/s/1wHywTKs2tOuWlKHoP5N4mQ 
+链接：https://pan.baidu.com/s/1xRGVi80BuESG9Q6hncmnqA 
 提取码：splc 
 --来自百度网盘超级会员V1的分享
 
